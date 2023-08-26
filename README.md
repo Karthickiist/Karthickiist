@@ -12,4 +12,4 @@
 
 🌟 I'm excited to contribute my skills and passion to a dynamic development team. Feel free to connect with me here or via email at Karthickeee69575@gmail.com. Let's explore how we can collaborate and create impactful software solutions together!"
 
-Feel free to customize this summary to better match your personal style and aspirations.
+
